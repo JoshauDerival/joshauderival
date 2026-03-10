@@ -1,4 +1,5 @@
-## Hi there 👋
+## I am a wrestler wrestling for thee oh Christ, to win for thee victory and from thee the victor's crown. 
+
 
 <!--
 **JoshauDerival/joshauderival** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
